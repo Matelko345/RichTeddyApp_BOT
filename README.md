@@ -15,5 +15,6 @@ https://t.me/LiftsAirdrops
 
 
 
-Uploading 2024-09-29 20-28-05 - Trim.mp4…
+
+https://github.com/user-attachments/assets/4f736cb3-0cbb-42a4-aeca-3afe8b5198cc
 
